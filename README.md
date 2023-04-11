@@ -1,0 +1,1 @@
+# Identifiying-Pattern-And-Trends-In-Campus-Using-Machine-Learning-Submisssion
